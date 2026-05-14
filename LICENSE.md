@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://HawkPortray83.github.io/ulysses-for-macos-wc82/ ) |
  |---------------------|----------------------:|
 
 
