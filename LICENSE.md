@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Ulysses for macOS integration with premium Ulysses for macOS Integration | custom shortcuts + focus mode. Featuring custom shortcuts and focus mode, it's the best
 
 
 
